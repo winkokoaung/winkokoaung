@@ -1,4 +1,4 @@
-Hey, this is Win! ✌️
+Hey, this is Win! 
 🗽 Background in Development & Humanitarian
 🛰️ Tech for Social Impact
-🇲🇲 🇺🇸 (He/Him)
+🇲🇲 🇺 (He/Him)
